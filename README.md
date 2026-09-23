@@ -1,5 +1,5 @@
 - 📁 Hi, I’m @zhanchiax
-- 🌟 I’m interested in ...watch movies
+- 🌟 I have a Class C Certificate in International Trade.
 - 🌱 I’m currently learning ... CJCU
 - 📥 How to reach me ... 113b01160@mailst.cjcu.edu.tw
 <!---
